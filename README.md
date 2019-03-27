@@ -1,2 +1,2 @@
 
-http://Ariteixeira2.github.io
+http://Ariteixei.github.io
